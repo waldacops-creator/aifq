@@ -1,14 +1,14 @@
 # 2026 年文章索引
 
-2026 年共收录 14940 篇文章。下面按月份归档，点击月份可以继续查看每天的文章列表。
+2026 年共收录 14960 篇文章。下面按月份归档，点击月份可以继续查看每天的文章列表。
 
 ## 月份目录
 
-- [2026-05](https://github.com/waldacops-creator/aifq/blob/main/2026/05/README.md) - 1075 篇文章，9 天
-- [2026-04](https://github.com/waldacops-creator/aifq/blob/main/2026/04/README.md) - 3400 篇文章，30 天
-- [2026-03](https://github.com/waldacops-creator/aifq/blob/main/2026/03/README.md) - 3606 篇文章，31 天
-- [2026-02](https://github.com/waldacops-creator/aifq/blob/main/2026/02/README.md) - 3284 篇文章，28 天
-- [2026-01](https://github.com/waldacops-creator/aifq/blob/main/2026/01/README.md) - 3575 篇文章，31 天
+- [2026-05](https://github.com/waldacops-creator/aifq/blob/main/2026/05/README.md) - 1077 篇文章，9 天
+- [2026-04](https://github.com/waldacops-creator/aifq/blob/main/2026/04/README.md) - 3406 篇文章，30 天
+- [2026-03](https://github.com/waldacops-creator/aifq/blob/main/2026/03/README.md) - 3610 篇文章，31 天
+- [2026-02](https://github.com/waldacops-creator/aifq/blob/main/2026/02/README.md) - 3288 篇文章，28 天
+- [2026-01](https://github.com/waldacops-creator/aifq/blob/main/2026/01/README.md) - 3579 篇文章，31 天
 
 ## 本年最新文章
 

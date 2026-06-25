@@ -1,7 +1,8 @@
 # 2026-05-04 文章列表
 
-本日共收录 125 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 126 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [\\[拔作ADV/NTR/无码官中\\] NATURALCORDE-在欲望的渲染下绽放真实的自~-愛欲の色に染められて~v1.0.2~ 官中步兵版 \\[704M/百度/FM\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/%5B%E6%8B%94%E4%BD%9CADV-NTR-%E6%97%A0%E7%A0%81%E5%AE%98%E4%B8%AD%5D-NATURALCORDE-%E5%9C%A8%E6%AC%B2%E6%9C%9B%E7%9A%84%E6%B8%B2%E6%9F%93%E4%B8%8B%E7%BB%BD%E6%94%BE%E7%9C%9F%E5%AE%9E%E7%9A%84%E8%87%AA--%E6%84%9B%E6%AC%B2%E3%81%AE%E8%89%B2%E3%81%AB%E6%9F%93%E3%82%81%E3%82%89%E3%82%8C%E3%81%A6-v1.0.2--%E5%AE%98%E4%B8%AD%E6%AD%A5%E5%85%B5%E7%89%88-%5B704M-%E7%99%BE%E5%BA%A6-FM%5D-115259.md) - ID: 115259
 - [\\[自行打包\\] \\[RPG/官中步兵/PC\\] 幻影叛离 ミラージュの離反 ver1.05 \\[1+1.04G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5BRPG-%E5%AE%98%E4%B8%AD%E6%AD%A5%E5%85%B5-PC%5D-%E5%B9%BB%E5%BD%B1%E5%8F%9B%E7%A6%BB-%E3%83%9F%E3%83%A9%E3%83%BC%E3%82%B8%E3%83%A5%E3%81%AE%E9%9B%A2%E5%8F%8D-ver1.05-%5B1%2B1.04G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-114744.md) - ID: 114744
 - [\\[3D\\]Bonkge 2602：2B&萨姆斯&蒂法 眼神迷离一脸享受 562M\\[PIKPAK\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/%5B3D%5DBonkge-2602%EF%BC%9A2B-%E8%90%A8%E5%A7%86%E6%96%AF-%E8%92%82%E6%B3%95-%E7%9C%BC%E7%A5%9E%E8%BF%B7%E7%A6%BB%E4%B8%80%E8%84%B8%E4%BA%AB%E5%8F%97-562M%5BPIKPAK%5D-114648.md) - ID: 114648
 - [\\[PC-RPG\\] 新汉化\\[动作RPG/情色\\] 色鬼 精翻汉化版+全回想存档 \\[780M\\] \\[FM/BD\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/%5BPC-RPG%5D-%E6%96%B0%E6%B1%89%E5%8C%96%5B%E5%8A%A8%E4%BD%9CRPG-%E6%83%85%E8%89%B2%5D-%E8%89%B2%E9%AC%BC-%E7%B2%BE%E7%BF%BB%E6%B1%89%E5%8C%96%E7%89%88%2B%E5%85%A8%E5%9B%9E%E6%83%B3%E5%AD%98%E6%A1%A3-%5B780M%5D-%5BFM-BD%5D-114618.md) - ID: 114618

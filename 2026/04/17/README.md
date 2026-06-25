@@ -1,7 +1,8 @@
 # 2026-04-17 文章列表
 
-本日共收录 130 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 131 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [【3D/动态/官中/巨乳】寄生虫/The parasites\\[Ver0.1.3.0 内测版\\]【PC/17.70G】](https://github.com/waldacops-creator/aifq/blob/main/2026/04/17/%E3%80%903D-%E5%8A%A8%E6%80%81-%E5%AE%98%E4%B8%AD-%E5%B7%A8%E4%B9%B3%E3%80%91%E5%AF%84%E7%94%9F%E8%99%AB-The-parasites%5BVer0.1.3.0-%E5%86%85%E6%B5%8B%E7%89%88%5D%E3%80%90PC-17.70G%E3%80%91-115247.md) - ID: 115247
 - [【三次元/萌宅卡】被魅魔附身的妹妹 \\[1V/1.9G/百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/17/%E3%80%90%E4%B8%89%E6%AC%A1%E5%85%83-%E8%90%8C%E5%AE%85%E5%8D%A1%E3%80%91%E8%A2%AB%E9%AD%85%E9%AD%94%E9%99%84%E8%BA%AB%E7%9A%84%E5%A6%B9%E5%A6%B9-%5B1V-1.9G-%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115192.md) - ID: 115192
 - [【SLG/AI汉化/生肉/像素/NTR/羞耻/中出】\\[RJ01486622/ハイボク工房社团\\]女主角，现在是审问的时间了/ヒロインよ尋問の時間です\\[Ver1.2\\]【PC/230M】](https://github.com/waldacops-creator/aifq/blob/main/2026/04/17/%E3%80%90SLG-AI%E6%B1%89%E5%8C%96-%E7%94%9F%E8%82%89-%E5%83%8F%E7%B4%A0-NTR-%E7%BE%9E%E8%80%BB-%E4%B8%AD%E5%87%BA%E3%80%91%5BRJ01486622-%E3%83%8F%E3%82%A4%E3%83%9C%E3%82%AF%E5%B7%A5%E6%88%BF%E7%A4%BE%E5%9B%A2%5D%E5%A5%B3%E4%B8%BB%E8%A7%92%EF%BC%8C%E7%8E%B0%E5%9C%A8%E6%98%AF%E5%AE%A1%E9%97%AE%E7%9A%84%E6%97%B6%E9%97%B4%E4%BA%86-%E3%83%92%E3%83%AD%E3%82%A4%E3%83%B3%E3%82%88%E5%B0%8B%E5%95%8F%E3%81%AE%E6%99%82%E9%96%93%E3%81%A7%E3%81%99%5BVer1.2%5D%E3%80%90PC-230-115051.md) - ID: 115051
 - [\\[PC\\]\\[RPG/汉化/新作/2D\\]战乙女与淫靡妖精之镇/戦乙女と淫らな妖精の町 AI汉化版 \\[1.28GB\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/17/%5BPC%5D%5BRPG-%E6%B1%89%E5%8C%96-%E6%96%B0%E4%BD%9C-2D%5D%E6%88%98%E4%B9%99%E5%A5%B3%E4%B8%8E%E6%B7%AB%E9%9D%A1%E5%A6%96%E7%B2%BE%E4%B9%8B%E9%95%87-%E6%88%A6%E4%B9%99%E5%A5%B3%E3%81%A8%E6%B7%AB%E3%82%89%E3%81%AA%E5%A6%96%E7%B2%BE%E3%81%AE%E7%94%BA-AI%E6%B1%89%E5%8C%96%E7%89%88-%5B1.28GB%5D-114795.md) - ID: 114795

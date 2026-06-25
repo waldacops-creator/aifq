@@ -1,6 +1,6 @@
 # 2026-04 文章索引
 
-2026 年 04 月共收录 3391 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
+2026 年 04 月共收录 3395 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
 
 ## 日期目录
 
@@ -17,22 +17,22 @@
 - [2026-04-20](https://github.com/waldacops-creator/aifq/blob/main/2026/04/20/README.md) - 119 篇文章
 - [2026-04-19](https://github.com/waldacops-creator/aifq/blob/main/2026/04/19/README.md) - 106 篇文章
 - [2026-04-18](https://github.com/waldacops-creator/aifq/blob/main/2026/04/18/README.md) - 126 篇文章
-- [2026-04-17](https://github.com/waldacops-creator/aifq/blob/main/2026/04/17/README.md) - 129 篇文章
+- [2026-04-17](https://github.com/waldacops-creator/aifq/blob/main/2026/04/17/README.md) - 130 篇文章
 - [2026-04-16](https://github.com/waldacops-creator/aifq/blob/main/2026/04/16/README.md) - 115 篇文章
 - [2026-04-15](https://github.com/waldacops-creator/aifq/blob/main/2026/04/15/README.md) - 108 篇文章
 - [2026-04-14](https://github.com/waldacops-creator/aifq/blob/main/2026/04/14/README.md) - 122 篇文章
 - [2026-04-13](https://github.com/waldacops-creator/aifq/blob/main/2026/04/13/README.md) - 122 篇文章
 - [2026-04-12](https://github.com/waldacops-creator/aifq/blob/main/2026/04/12/README.md) - 111 篇文章
-- [2026-04-11](https://github.com/waldacops-creator/aifq/blob/main/2026/04/11/README.md) - 110 篇文章
+- [2026-04-11](https://github.com/waldacops-creator/aifq/blob/main/2026/04/11/README.md) - 111 篇文章
 - [2026-04-10](https://github.com/waldacops-creator/aifq/blob/main/2026/04/10/README.md) - 117 篇文章
 - [2026-04-09](https://github.com/waldacops-creator/aifq/blob/main/2026/04/09/README.md) - 115 篇文章
 - [2026-04-08](https://github.com/waldacops-creator/aifq/blob/main/2026/04/08/README.md) - 91 篇文章
 - [2026-04-07](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/README.md) - 90 篇文章
 - [2026-04-06](https://github.com/waldacops-creator/aifq/blob/main/2026/04/06/README.md) - 120 篇文章
 - [2026-04-05](https://github.com/waldacops-creator/aifq/blob/main/2026/04/05/README.md) - 102 篇文章
-- [2026-04-04](https://github.com/waldacops-creator/aifq/blob/main/2026/04/04/README.md) - 116 篇文章
+- [2026-04-04](https://github.com/waldacops-creator/aifq/blob/main/2026/04/04/README.md) - 117 篇文章
 - [2026-04-03](https://github.com/waldacops-creator/aifq/blob/main/2026/04/03/README.md) - 98 篇文章
-- [2026-04-02](https://github.com/waldacops-creator/aifq/blob/main/2026/04/02/README.md) - 122 篇文章
+- [2026-04-02](https://github.com/waldacops-creator/aifq/blob/main/2026/04/02/README.md) - 123 篇文章
 - [2026-04-01](https://github.com/waldacops-creator/aifq/blob/main/2026/04/01/README.md) - 106 篇文章
 
 ## 本月文章

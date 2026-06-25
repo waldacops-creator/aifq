@@ -1,7 +1,8 @@
 # 2026-04-04 文章列表
 
-本日共收录 116 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 117 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [\\[pc\\]《护林员之路：国家公园模拟器》Build.22275395|容量21.4GB|官方简体中文|支持键盘.鼠标.手柄](https://github.com/waldacops-creator/aifq/blob/main/2026/04/04/%5Bpc%5D%E3%80%8A%E6%8A%A4%E6%9E%97%E5%91%98%E4%B9%8B%E8%B7%AF%EF%BC%9A%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD%E6%A8%A1%E6%8B%9F%E5%99%A8%E3%80%8BBuild.22275395-%E5%AE%B9%E9%87%8F21.4GB-%E5%AE%98%E6%96%B9%E7%AE%80%E4%BD%93%E4%B8%AD%E6%96%87-%E6%94%AF%E6%8C%81%E9%94%AE%E7%9B%98.%E9%BC%A0%E6%A0%87.%E6%89%8B%E6%9F%84-115181.md) - ID: 115181
 - [\\[自行打包\\] pc魔王陛下的燃眉之急 The Demon Queen’s Dire Dilemma 机翻版 \\[1+328m\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/04/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-pc%E9%AD%94%E7%8E%8B%E9%99%9B%E4%B8%8B%E7%9A%84%E7%87%83%E7%9C%89%E4%B9%8B%E6%80%A5-The-Demon-Queen%E2%80%99s-Dire-Dilemma-%E6%9C%BA%E7%BF%BB%E7%89%88-%5B1%2B328m%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115020.md) - ID: 115020
 - [\\[自行打包\\] 【新作SLG官中PC安卓直装】Ghost Milfv1.0 \\[1+264m\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/04/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90%E6%96%B0%E4%BD%9CSLG%E5%AE%98%E4%B8%ADPC%E5%AE%89%E5%8D%93%E7%9B%B4%E8%A3%85%E3%80%91Ghost-Milfv1.0-%5B1%2B264m%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-114803.md) - ID: 114803
 - [\\[3D\\]QOC 2602：蒂法 性感女神水嫩蜜穴 283M\\[PIKPAK\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/04/%5B3D%5DQOC-2602%EF%BC%9A%E8%92%82%E6%B3%95-%E6%80%A7%E6%84%9F%E5%A5%B3%E7%A5%9E%E6%B0%B4%E5%AB%A9%E8%9C%9C%E7%A9%B4-283M%5BPIKPAK%5D-114745.md) - ID: 114745

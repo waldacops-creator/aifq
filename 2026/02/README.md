@@ -1,6 +1,6 @@
 # 2026-02 文章索引
 
-2026 年 02 月共收录 30 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
+2026 年 02 月共收录 31 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
 
 ## 日期目录
 
@@ -21,7 +21,7 @@
 - [2026-02-11](https://github.com/waldacops-creator/aifq/blob/main/2026/02/11/README.md) - 1 篇文章
 - [2026-02-07](https://github.com/waldacops-creator/aifq/blob/main/2026/02/07/README.md) - 2 篇文章
 - [2026-02-06](https://github.com/waldacops-creator/aifq/blob/main/2026/02/06/README.md) - 1 篇文章
-- [2026-02-04](https://github.com/waldacops-creator/aifq/blob/main/2026/02/04/README.md) - 3 篇文章
+- [2026-02-04](https://github.com/waldacops-creator/aifq/blob/main/2026/02/04/README.md) - 4 篇文章
 - [2026-02-01](https://github.com/waldacops-creator/aifq/blob/main/2026/02/01/README.md) - 1 篇文章
 
 ## 本月文章
@@ -52,6 +52,7 @@
 - [\\[91大神\\] \\[自行打包\\] 【新作/极品/反差/学妹/约炮】 《07无毛馒头嫩逼大一学妹》 \\[1V+1.4G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/02/07/%5B91%E5%A4%A7%E7%A5%9E%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90%E6%96%B0%E4%BD%9C-%E6%9E%81%E5%93%81-%E5%8F%8D%E5%B7%AE-%E5%AD%A6%E5%A6%B9-%E7%BA%A6%E7%82%AE%E3%80%91-%E3%80%8A07%E6%97%A0%E6%AF%9B%E9%A6%92%E5%A4%B4%E5%AB%A9%E9%80%BC%E5%A4%A7%E4%B8%80%E5%AD%A6%E5%A6%B9%E3%80%8B-%5B1V%2B1.4G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100449.md) - 2026-02-07，ID: 100449
 - [\\[自行打包\\] PC/官中/步兵/2D 女大学生深夜露出 DX \\[1+1.7G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/02/07/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-PC-%E5%AE%98%E4%B8%AD-%E6%AD%A5%E5%85%B5-2D-%E5%A5%B3%E5%A4%A7%E5%AD%A6%E7%94%9F%E6%B7%B1%E5%A4%9C%E9%9C%B2%E5%87%BA-DX-%5B1%2B1.7G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100390.md) - 2026-02-07，ID: 100390
 - [\\[自行打包\\] 新步兵\\[日式SLG/Live2Dpc\\] 壁屁×虫 触摸模拟器AI汉化版+去码版 \\[1+920M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/02/06/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E6%96%B0%E6%AD%A5%E5%85%B5%5B%E6%97%A5%E5%BC%8FSLG-Live2Dpc%5D-%E5%A3%81%E5%B1%81%C3%97%E8%99%AB-%E8%A7%A6%E6%91%B8%E6%A8%A1%E6%8B%9F%E5%99%A8AI%E6%B1%89%E5%8C%96%E7%89%88%2B%E5%8E%BB%E7%A0%81%E7%89%88-%5B1%2B920M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100425.md) - 2026-02-06，ID: 100425
+- [PC【拔作动态SLG恶堕】身体支付 BodyPay 官方中文版+作弊【1.5G】](https://github.com/waldacops-creator/aifq/blob/main/2026/02/04/PC%E3%80%90%E6%8B%94%E4%BD%9C%E5%8A%A8%E6%80%81SLG%E6%81%B6%E5%A0%95%E3%80%91%E8%BA%AB%E4%BD%93%E6%94%AF%E4%BB%98-BodyPay-%E5%AE%98%E6%96%B9%E4%B8%AD%E6%96%87%E7%89%88%2B%E4%BD%9C%E5%BC%8A%E3%80%901.5G%E3%80%91-100468.md) - 2026-02-04，ID: 100468
 - [\\[漫画\\] \\[转载搬运\\] 3.19 《妖精的尾巴》温蒂·马贝尔Wendy Marvell \\[477P+1.5G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/02/04/%5B%E6%BC%AB%E7%94%BB%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-3.19-%E3%80%8A%E5%A6%96%E7%B2%BE%E7%9A%84%E5%B0%BE%E5%B7%B4%E3%80%8B%E6%B8%A9%E8%92%82%C2%B7%E9%A9%AC%E8%B4%9D%E5%B0%94Wendy-Marvell-%5B477P%2B1.5G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100391.md) - 2026-02-04，ID: 100391
 - [\\[漫画\\] \\[转载搬运\\] 3.19《女神异闻录3》岳羽由加莉Takeba Yukari \\[387P+1.4G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/02/04/%5B%E6%BC%AB%E7%94%BB%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-3.19%E3%80%8A%E5%A5%B3%E7%A5%9E%E5%BC%82%E9%97%BB%E5%BD%953%E3%80%8B%E5%B2%B3%E7%BE%BD%E7%94%B1%E5%8A%A0%E8%8E%89Takeba-Yukari-%5B387P%2B1.4G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100330.md) - 2026-02-04，ID: 100330
 - [\\[AI动漫\\]（搬运至260320）ANIPAI 188-192【185P】【396MB百度云】](https://github.com/waldacops-creator/aifq/blob/main/2026/02/04/%5BAI%E5%8A%A8%E6%BC%AB%5D%EF%BC%88%E6%90%AC%E8%BF%90%E8%87%B3260320%EF%BC%89ANIPAI-188-192%E3%80%90185P%E3%80%91%E3%80%90396MB%E7%99%BE%E5%BA%A6%E4%BA%91%E3%80%91-100303.md) - 2026-02-04，ID: 100303

@@ -1,7 +1,9 @@
 # 2026-04-07 文章列表
 
-本日共收录 90 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 92 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [\\[自行打包\\] \\[新作SLG/PC/官中/潮吹\\]校规即绝对的 校則は絶対だ 官方中文版 \\[1+269M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5B%E6%96%B0%E4%BD%9CSLG-PC-%E5%AE%98%E4%B8%AD-%E6%BD%AE%E5%90%B9%5D%E6%A0%A1%E8%A7%84%E5%8D%B3%E7%BB%9D%E5%AF%B9%E7%9A%84-%E6%A0%A1%E5%89%87%E3%81%AF%E7%B5%B6%E5%AF%BE%E3%81%A0-%E5%AE%98%E6%96%B9%E4%B8%AD%E6%96%87%E7%89%88-%5B1%2B269M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115274.md) - ID: 115274
+- [\\[3D\\] \\[转载搬运\\] AI图包 凹凸曼-燕倾城 \\[n+360m\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/%5B3D%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-AI%E5%9B%BE%E5%8C%85-%E5%87%B9%E5%87%B8%E6%9B%BC-%E7%87%95%E5%80%BE%E5%9F%8E-%5Bn%2B360m%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115272.md) - ID: 115272
 - [\\[自拍\\] \\[转载搬运\\] 抖音博主Sunny77 资源合集 \\[nvnp+3g\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/%5B%E8%87%AA%E6%8B%8D%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-%E6%8A%96%E9%9F%B3%E5%8D%9A%E4%B8%BBSunny77-%E8%B5%84%E6%BA%90%E5%90%88%E9%9B%86-%5Bnvnp%2B3g%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115179.md) - ID: 115179
 - [【日式RPG】春销卡牌斗士 Ver1.00 Steam官方中文步兵版](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/%E3%80%90%E6%97%A5%E5%BC%8FRPG%E3%80%91%E6%98%A5%E9%94%80%E5%8D%A1%E7%89%8C%E6%96%97%E5%A3%AB-Ver1.00-Steam%E5%AE%98%E6%96%B9%E4%B8%AD%E6%96%87%E6%AD%A5%E5%85%B5%E7%89%88-114778.md) - ID: 114778
 - [\\[美女御姐\\] \\[自行打包\\] 【狂草骚母狗】床上操到厕所~激情啪啪~小哥无套内射白浆穴 \\[4v+2.44G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/%5B%E7%BE%8E%E5%A5%B3%E5%BE%A1%E5%A7%90%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90%E7%8B%82%E8%8D%89%E9%AA%9A%E6%AF%8D%E7%8B%97%E3%80%91%E5%BA%8A%E4%B8%8A%E6%93%8D%E5%88%B0%E5%8E%95%E6%89%80-%E6%BF%80%E6%83%85%E5%95%AA%E5%95%AA-%E5%B0%8F%E5%93%A5%E6%97%A0%E5%A5%97%E5%86%85%E5%B0%84%E7%99%BD%E6%B5%86%E7%A9%B4-%5B4v%2B2.44G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-114165.md) - ID: 114165

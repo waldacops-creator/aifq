@@ -1,7 +1,8 @@
 # 2026-05-04 文章列表
 
-本日共收录 127 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 128 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [【SLG/2D/动态/PC+安卓】幽灵魅魔 Ghost Milf 官方中文版](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/%E3%80%90SLG-2D-%E5%8A%A8%E6%80%81-PC%2B%E5%AE%89%E5%8D%93%E3%80%91%E5%B9%BD%E7%81%B5%E9%AD%85%E9%AD%94-Ghost-Milf-%E5%AE%98%E6%96%B9%E4%B8%AD%E6%96%87%E7%89%88-115317.md) - ID: 115317
 - [\\[转载搬运\\] 小一熟了 嫂子的yh – \\[1v+350m\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-%E5%B0%8F%E4%B8%80%E7%86%9F%E4%BA%86-%E5%AB%82%E5%AD%90%E7%9A%84yh-%E2%80%93-%5B1v%2B350m%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115264.md) - ID: 115264
 - [\\[拔作ADV/NTR/无码官中\\] NATURALCORDE-在欲望的渲染下绽放真实的自~-愛欲の色に染められて~v1.0.2~ 官中步兵版 \\[704M/百度/FM\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/%5B%E6%8B%94%E4%BD%9CADV-NTR-%E6%97%A0%E7%A0%81%E5%AE%98%E4%B8%AD%5D-NATURALCORDE-%E5%9C%A8%E6%AC%B2%E6%9C%9B%E7%9A%84%E6%B8%B2%E6%9F%93%E4%B8%8B%E7%BB%BD%E6%94%BE%E7%9C%9F%E5%AE%9E%E7%9A%84%E8%87%AA--%E6%84%9B%E6%AC%B2%E3%81%AE%E8%89%B2%E3%81%AB%E6%9F%93%E3%82%81%E3%82%89%E3%82%8C%E3%81%A6-v1.0.2--%E5%AE%98%E4%B8%AD%E6%AD%A5%E5%85%B5%E7%89%88-%5B704M-%E7%99%BE%E5%BA%A6-FM%5D-115259.md) - ID: 115259
 - [\\[自行打包\\] \\[RPG/官中步兵/PC\\] 幻影叛离 ミラージュの離反 ver1.05 \\[1+1.04G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5BRPG-%E5%AE%98%E4%B8%AD%E6%AD%A5%E5%85%B5-PC%5D-%E5%B9%BB%E5%BD%B1%E5%8F%9B%E7%A6%BB-%E3%83%9F%E3%83%A9%E3%83%BC%E3%82%B8%E3%83%A5%E3%81%AE%E9%9B%A2%E5%8F%8D-ver1.05-%5B1%2B1.04G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-114744.md) - ID: 114744

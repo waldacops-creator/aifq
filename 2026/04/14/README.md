@@ -1,7 +1,8 @@
 # 2026-04-14 文章列表
 
-本日共收录 123 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 124 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [\\[3D\\] \\[转载搬运\\] \\[VAM\\]EZhustler合集 \\[200V+148GB\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/14/%5B3D%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-%5BVAM%5DEZhustler%E5%90%88%E9%9B%86-%5B200V%2B148GB%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115315.md) - ID: 115315
 - [\\[自行打包\\] 【PC/安卓】被魔鬼崇拜 (Adored by the Devil) Ver0.14 AI汉化版 \\[1P+7.75G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/14/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90PC-%E5%AE%89%E5%8D%93%E3%80%91%E8%A2%AB%E9%AD%94%E9%AC%BC%E5%B4%87%E6%8B%9C-%28Adored-by-the-Devil%29-Ver0.14-AI%E6%B1%89%E5%8C%96%E7%89%88-%5B1P%2B7.75G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115260.md) - ID: 115260
 - [\\[PC-SLG\\] 新作\\[日式SLG/堕落\\] 救生员狂热 Lifeguard Holic Demo v091a 官中步兵版 \\[2.10G\\] \\[FM/BD\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/14/%5BPC-SLG%5D-%E6%96%B0%E4%BD%9C%5B%E6%97%A5%E5%BC%8FSLG-%E5%A0%95%E8%90%BD%5D-%E6%95%91%E7%94%9F%E5%91%98%E7%8B%82%E7%83%AD-Lifeguard-Holic-Demo-v091a-%E5%AE%98%E4%B8%AD%E6%AD%A5%E5%85%B5%E7%89%88-%5B2.10G%5D-%5BFM-BD%5D-115018.md) - ID: 115018
 - [AI绘画 斗罗大陆-唐月华 \\[77P\\] \\[362M\\] \\[UC\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/14/AI%E7%BB%98%E7%94%BB-%E6%96%97%E7%BD%97%E5%A4%A7%E9%99%86-%E5%94%90%E6%9C%88%E5%8D%8E-%5B77P%5D-%5B362M%5D-%5BUC%5D-114943.md) - ID: 114943

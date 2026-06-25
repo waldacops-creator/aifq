@@ -1,7 +1,8 @@
 # 2026-01-09 文章列表
 
-本日共收录 136 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 137 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [\\[pc\\]《奇物工厂》Build.22276544|容量1GB|官方简体中文|支持键盘.鼠标.手柄](https://github.com/waldacops-creator/aifq/blob/main/2026/01/09/%5Bpc%5D%E3%80%8A%E5%A5%87%E7%89%A9%E5%B7%A5%E5%8E%82%E3%80%8BBuild.22276544-%E5%AE%B9%E9%87%8F1GB-%E5%AE%98%E6%96%B9%E7%AE%80%E4%BD%93%E4%B8%AD%E6%96%87-%E6%94%AF%E6%8C%81%E9%94%AE%E7%9B%98.%E9%BC%A0%E6%A0%87.%E6%89%8B%E6%9F%84-115382.md) - ID: 115382
 - [\\[日式RPG/新作\\] 给在这个世界某处的妻子 この世のどこかにいる妻へ AI汉化版+全回想存档 \\[520M/多空转百度\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/01/09/%5B%E6%97%A5%E5%BC%8FRPG-%E6%96%B0%E4%BD%9C%5D-%E7%BB%99%E5%9C%A8%E8%BF%99%E4%B8%AA%E4%B8%96%E7%95%8C%E6%9F%90%E5%A4%84%E7%9A%84%E5%A6%BB%E5%AD%90-%E3%81%93%E3%81%AE%E4%B8%96%E3%81%AE%E3%81%A9%E3%81%93%E3%81%8B%E3%81%AB%E3%81%84%E3%82%8B%E5%A6%BB%E3%81%B8-AI%E6%B1%89%E5%8C%96%E7%89%88%2B%E5%85%A8%E5%9B%9E%E6%83%B3%E5%AD%98%E6%A1%A3-%5B520M-%E5%A4%9A%E7%A9%BA%E8%BD%AC%E7%99%BE%E5%BA%A6%5D-114996.md) - ID: 114996
 - [\\[Jack Wang\\] 母系社会\\[307P/180M\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/01/09/%5BJack-Wang%5D-%E6%AF%8D%E7%B3%BB%E7%A4%BE%E4%BC%9A%5B307P-180M%5D-114898.md) - ID: 114898
 - [【RPG/机翻+AI文本/色诱/后宫/怀孕/西瓜肚】\\[RJ01577702/生まれ変わったら王様になりたい社团\\]今天要进哪个洞呀？ 我们神社正在招募上门女婿哦！/今日はどの穴に出すぅ? うちの神社はお婿さん募集中！【PC/400M】](https://github.com/waldacops-creator/aifq/blob/main/2026/01/09/%E3%80%90RPG-%E6%9C%BA%E7%BF%BB%2BAI%E6%96%87%E6%9C%AC-%E8%89%B2%E8%AF%B1-%E5%90%8E%E5%AE%AB-%E6%80%80%E5%AD%95-%E8%A5%BF%E7%93%9C%E8%82%9A%E3%80%91%5BRJ01577702-%E7%94%9F%E3%81%BE%E3%82%8C%E5%A4%89%E3%82%8F%E3%81%A3%E3%81%9F%E3%82%89%E7%8E%8B%E6%A7%98%E3%81%AB%E3%81%AA%E3%82%8A%E3%81%9F%E3%81%84%E7%A4%BE%E5%9B%A2%5D%E4%BB%8A%E5%A4%A9%E8%A6%81%E8%BF%9B%E5%93%AA%E4%B8%AA%E6%B4%9E%E5%91%80%EF%BC%9F-%E6%88%91%E4%BB%AC%E7%A5%9E%E7%A4%BE%E6%AD%A3%E5%9C%A8%E6%8B%9B%E5%8B%9F%E4%B8%8A%E9%97%A8-114828.md) - ID: 114828

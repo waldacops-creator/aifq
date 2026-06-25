@@ -1,7 +1,8 @@
 # 2026-04-07 文章列表
 
-本日共收录 92 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 93 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [\\[PC\\]\\[HTML/汉化/真人/\\]百万富翁/Millionaire v0.7a 浏览器汉化 \\[1.88GB\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/%5BPC%5D%5BHTML-%E6%B1%89%E5%8C%96-%E7%9C%9F%E4%BA%BA-%5D%E7%99%BE%E4%B8%87%E5%AF%8C%E7%BF%81-Millionaire-v0.7a-%E6%B5%8F%E8%A7%88%E5%99%A8%E6%B1%89%E5%8C%96-%5B1.88GB%5D-115307.md) - ID: 115307
 - [\\[自行打包\\] \\[新作SLG/PC/官中/潮吹\\]校规即绝对的 校則は絶対だ 官方中文版 \\[1+269M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5B%E6%96%B0%E4%BD%9CSLG-PC-%E5%AE%98%E4%B8%AD-%E6%BD%AE%E5%90%B9%5D%E6%A0%A1%E8%A7%84%E5%8D%B3%E7%BB%9D%E5%AF%B9%E7%9A%84-%E6%A0%A1%E5%89%87%E3%81%AF%E7%B5%B6%E5%AF%BE%E3%81%A0-%E5%AE%98%E6%96%B9%E4%B8%AD%E6%96%87%E7%89%88-%5B1%2B269M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115274.md) - ID: 115274
 - [\\[3D\\] \\[转载搬运\\] AI图包 凹凸曼-燕倾城 \\[n+360m\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/%5B3D%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-AI%E5%9B%BE%E5%8C%85-%E5%87%B9%E5%87%B8%E6%9B%BC-%E7%87%95%E5%80%BE%E5%9F%8E-%5Bn%2B360m%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115272.md) - ID: 115272
 - [\\[自拍\\] \\[转载搬运\\] 抖音博主Sunny77 资源合集 \\[nvnp+3g\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/07/%5B%E8%87%AA%E6%8B%8D%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-%E6%8A%96%E9%9F%B3%E5%8D%9A%E4%B8%BBSunny77-%E8%B5%84%E6%BA%90%E5%90%88%E9%9B%86-%5Bnvnp%2B3g%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115179.md) - ID: 115179

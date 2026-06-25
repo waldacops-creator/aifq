@@ -1,21 +1,22 @@
 # 2026-05 文章索引
 
-2026 年 05 月共收录 1078 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
+2026 年 05 月共收录 1093 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
 
 ## 日期目录
 
-- [2026-05-09](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/README.md) - 104 篇文章
+- [2026-05-09](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/README.md) - 105 篇文章
 - [2026-05-08](https://github.com/waldacops-creator/aifq/blob/main/2026/05/08/README.md) - 92 篇文章
-- [2026-05-07](https://github.com/waldacops-creator/aifq/blob/main/2026/05/07/README.md) - 130 篇文章
-- [2026-05-06](https://github.com/waldacops-creator/aifq/blob/main/2026/05/06/README.md) - 131 篇文章
+- [2026-05-07](https://github.com/waldacops-creator/aifq/blob/main/2026/05/07/README.md) - 133 篇文章
+- [2026-05-06](https://github.com/waldacops-creator/aifq/blob/main/2026/05/06/README.md) - 132 篇文章
 - [2026-05-05](https://github.com/waldacops-creator/aifq/blob/main/2026/05/05/README.md) - 110 篇文章
-- [2026-05-04](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/README.md) - 127 篇文章
-- [2026-05-03](https://github.com/waldacops-creator/aifq/blob/main/2026/05/03/README.md) - 126 篇文章
-- [2026-05-02](https://github.com/waldacops-creator/aifq/blob/main/2026/05/02/README.md) - 126 篇文章
-- [2026-05-01](https://github.com/waldacops-creator/aifq/blob/main/2026/05/01/README.md) - 132 篇文章
+- [2026-05-04](https://github.com/waldacops-creator/aifq/blob/main/2026/05/04/README.md) - 128 篇文章
+- [2026-05-03](https://github.com/waldacops-creator/aifq/blob/main/2026/05/03/README.md) - 128 篇文章
+- [2026-05-02](https://github.com/waldacops-creator/aifq/blob/main/2026/05/02/README.md) - 129 篇文章
+- [2026-05-01](https://github.com/waldacops-creator/aifq/blob/main/2026/05/01/README.md) - 136 篇文章
 
 ## 本月文章
 
+- [【日系SLG/AI汉化/同人】梦境堕落Dream Corruption 0.2 AI汉化版【PC+安卓/1.3G/更新】](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/%E3%80%90%E6%97%A5%E7%B3%BBSLG-AI%E6%B1%89%E5%8C%96-%E5%90%8C%E4%BA%BA%E3%80%91%E6%A2%A6%E5%A2%83%E5%A0%95%E8%90%BDDream-Corruption-0.2-AI%E6%B1%89%E5%8C%96%E7%89%88%E3%80%90PC%2B%E5%AE%89%E5%8D%93-1.3G-%E6%9B%B4%E6%96%B0%E3%80%91-115288.md) - 2026-05-09，ID: 115288
 - [\\[图片\\] \\[转载搬运\\] \\[アオヒモファミリア (あおひも)\\] 陰キャのKカップちゃん1-4 \\[1+379MB\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/%5B%E5%9B%BE%E7%89%87%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-%5B%E3%82%A2%E3%82%AA%E3%83%92%E3%83%A2%E3%83%95%E3%82%A1%E3%83%9F%E3%83%AA%E3%82%A2-%28%E3%81%82%E3%81%8A%E3%81%B2%E3%82%82%29%5D-%E9%99%B0%E3%82%AD%E3%83%A3%E3%81%AEK%E3%82%AB%E3%83%83%E3%83%97%E3%81%A1%E3%82%83%E3%82%931-4-%5B1%2B379MB%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-115048.md) - 2026-05-09，ID: 115048
 - [\\[漫画\\] \\[转载搬运\\] \\[Gぱんだ (御堂つかさ)\\]9部合集 \\[178P+96M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/%5B%E6%BC%AB%E7%94%BB%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-%5BG%E3%81%B1%E3%82%93%E3%81%A0-%28%E5%BE%A1%E5%A0%82%E3%81%A4%E3%81%8B%E3%81%95%29%5D9%E9%83%A8%E5%90%88%E9%9B%86-%5B178P%2B96M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-114651.md) - 2026-05-09，ID: 114651
 - [\\[自行打包\\] \\[冒险RPG/强X\\] 昔日最强3人组的BF故事 \\[aop模拟器\\] \\[1+516MB\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5B%E5%86%92%E9%99%A9RPG-%E5%BC%BAX%5D-%E6%98%94%E6%97%A5%E6%9C%80%E5%BC%BA3%E4%BA%BA%E7%BB%84%E7%9A%84BF%E6%95%85%E4%BA%8B-%5Baop%E6%A8%A1%E6%8B%9F%E5%99%A8%5D-%5B1%2B516MB%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-114552.md) - 2026-05-09，ID: 114552
@@ -115,4 +116,3 @@
 - [\\[女大学生\\] \\[自行打包\\] ♆♆【湿学生丫丫】 超骚御姐~! 酥胸诱惑~美腿丝袜~跳蛋 \\[4v+5.95G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/%5B%E5%A5%B3%E5%A4%A7%E5%AD%A6%E7%94%9F%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E2%99%86%E2%99%86%E3%80%90%E6%B9%BF%E5%AD%A6%E7%94%9F%E4%B8%AB%E4%B8%AB%E3%80%91-%E8%B6%85%E9%AA%9A%E5%BE%A1%E5%A7%90-%21-%E9%85%A5%E8%83%B8%E8%AF%B1%E6%83%91-%E7%BE%8E%E8%85%BF%E4%B8%9D%E8%A2%9C-%E8%B7%B3%E8%9B%8B-%5B4v%2B5.95G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-101575.md) - 2026-05-09，ID: 101575
 - [\\[LOVEPOP\\]Azumi Uta 茜紬うた Photoset 04](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/%5BLOVEPOP%5DAzumi-Uta-%E8%8C%9C%E7%B4%AC%E3%81%86%E3%81%9F-Photoset-04-101524.md) - 2026-05-09，ID: 101524
 - [\\[自行打包\\] PC\\[RPG/汉化\\]卡莉娜的色色冒险谭！挂载AI汉化版+存档\\[新汉化\\] \\[1+1.1g\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-PC%5BRPG-%E6%B1%89%E5%8C%96%5D%E5%8D%A1%E8%8E%89%E5%A8%9C%E7%9A%84%E8%89%B2%E8%89%B2%E5%86%92%E9%99%A9%E8%B0%AD%EF%BC%81%E6%8C%82%E8%BD%BDAI%E6%B1%89%E5%8C%96%E7%89%88%2B%E5%AD%98%E6%A1%A3%5B%E6%96%B0%E6%B1%89%E5%8C%96%5D-%5B1%2B1.1g%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-101335.md) - 2026-05-09，ID: 101335
-- [\\[自行打包\\] PC/平安亭新作/gemini-3漢化~人妻上司の分からせ方 \\[2+遊戲解壓後731m\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/05/09/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-PC-%E5%B9%B3%E5%AE%89%E4%BA%AD%E6%96%B0%E4%BD%9C-gemini-3%E6%BC%A2%E5%8C%96-%E4%BA%BA%E5%A6%BB%E4%B8%8A%E5%8F%B8%E3%81%AE%E5%88%86%E3%81%8B%E3%82%89%E3%81%9B%E6%96%B9-%5B2%2B%E9%81%8A%E6%88%B2%E8%A7%A3%E5%A3%93%E5%BE%8C731m%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-101216.md) - 2026-05-09，ID: 101216

@@ -1,14 +1,14 @@
 # 2026-04 文章索引
 
-2026 年 04 月共收录 46 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
+2026 年 04 月共收录 48 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
 
 ## 日期目录
 
 - [2026-04-30](https://github.com/waldacops-creator/aifq/blob/main/2026/04/30/README.md) - 2 篇文章
 - [2026-04-29](https://github.com/waldacops-creator/aifq/blob/main/2026/04/29/README.md) - 2 篇文章
-- [2026-04-28](https://github.com/waldacops-creator/aifq/blob/main/2026/04/28/README.md) - 1 篇文章
+- [2026-04-28](https://github.com/waldacops-creator/aifq/blob/main/2026/04/28/README.md) - 2 篇文章
 - [2026-04-27](https://github.com/waldacops-creator/aifq/blob/main/2026/04/27/README.md) - 2 篇文章
-- [2026-04-26](https://github.com/waldacops-creator/aifq/blob/main/2026/04/26/README.md) - 4 篇文章
+- [2026-04-26](https://github.com/waldacops-creator/aifq/blob/main/2026/04/26/README.md) - 5 篇文章
 - [2026-04-24](https://github.com/waldacops-creator/aifq/blob/main/2026/04/24/README.md) - 4 篇文章
 - [2026-04-22](https://github.com/waldacops-creator/aifq/blob/main/2026/04/22/README.md) - 6 篇文章
 - [2026-04-19](https://github.com/waldacops-creator/aifq/blob/main/2026/04/19/README.md) - 1 篇文章
@@ -32,9 +32,11 @@
 - [\\[自行打包\\] 【欧美SLG/汉化/完结】与女神一起被隔离v1.0完结 PC+安卓AI版 \\[1+867M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/30/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90%E6%AC%A7%E7%BE%8ESLG-%E6%B1%89%E5%8C%96-%E5%AE%8C%E7%BB%93%E3%80%91%E4%B8%8E%E5%A5%B3%E7%A5%9E%E4%B8%80%E8%B5%B7%E8%A2%AB%E9%9A%94%E7%A6%BBv1.0%E5%AE%8C%E7%BB%93-PC%2B%E5%AE%89%E5%8D%93AI%E7%89%88-%5B1%2B867M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100426.md) - 2026-04-30，ID: 100426
 - [\\[自行打包\\] \\[RPG官中PC无码NTR\\] 为战败的母猪骑士赋予诅咒! この敗北し… \\[1+700M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/29/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5BRPG%E5%AE%98%E4%B8%ADPC%E6%97%A0%E7%A0%81NTR%5D-%E4%B8%BA%E6%88%98%E8%B4%A5%E7%9A%84%E6%AF%8D%E7%8C%AA%E9%AA%91%E5%A3%AB%E8%B5%8B%E4%BA%88%E8%AF%85%E5%92%92%21-%E3%81%93%E3%81%AE%E6%95%97%E5%8C%97%E3%81%97%E2%80%A6-%5B1%2B700M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100453.md) - 2026-04-29，ID: 100453
 - [chuchu Vtuber赤井心 赤井はあと【94P1V2.84G】](https://github.com/waldacops-creator/aifq/blob/main/2026/04/29/chuchu-Vtuber%E8%B5%A4%E4%BA%95%E5%BF%83-%E8%B5%A4%E4%BA%95%E3%81%AF%E3%81%82%E3%81%A8%E3%80%9094P1V2.84G%E3%80%91-100405.md) - 2026-04-29，ID: 100405
+- [\\[自拍\\] \\[转载搬运\\] #五等分的花嫁 #中野二乃 #美颜渲染 极品颜值还原中野二乃 \\[1+1.4g\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/28/%5B%E8%87%AA%E6%8B%8D%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D--%E4%BA%94%E7%AD%89%E5%88%86%E7%9A%84%E8%8A%B1%E5%AB%81--%E4%B8%AD%E9%87%8E%E4%BA%8C%E4%B9%83--%E7%BE%8E%E9%A2%9C%E6%B8%B2%E6%9F%93-%E6%9E%81%E5%93%81%E9%A2%9C%E5%80%BC%E8%BF%98%E5%8E%9F%E4%B8%AD%E9%87%8E%E4%BA%8C%E4%B9%83-%5B1%2B1.4g%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100480.md) - 2026-04-28，ID: 100480
 - [【水嫩宝宝】07农村美少女~! 约炮2小哥开房3P~拔套爽操~尿尿2v](https://github.com/waldacops-creator/aifq/blob/main/2026/04/28/%E3%80%90%E6%B0%B4%E5%AB%A9%E5%AE%9D%E5%AE%9D%E3%80%9107%E5%86%9C%E6%9D%91%E7%BE%8E%E5%B0%91%E5%A5%B3-%21-%E7%BA%A6%E7%82%AE2%E5%B0%8F%E5%93%A5%E5%BC%80%E6%88%BF3P-%E6%8B%94%E5%A5%97%E7%88%BD%E6%93%8D-%E5%B0%BF%E5%B0%BF2v-100441.md) - 2026-04-28，ID: 100441
 - [\\[自行打包\\] \\[探索RPG/巨乳爆乳\\] 破坏的狂兽 高虎奈久盆脑寺矫正学园的逃脱～\\[aop模拟器 \\[1+1.02g\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/27/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5B%E6%8E%A2%E7%B4%A2RPG-%E5%B7%A8%E4%B9%B3%E7%88%86%E4%B9%B3%5D-%E7%A0%B4%E5%9D%8F%E7%9A%84%E7%8B%82%E5%85%BD-%E9%AB%98%E8%99%8E%E5%A5%88%E4%B9%85%E7%9B%86%E8%84%91%E5%AF%BA%E7%9F%AB%E6%AD%A3%E5%AD%A6%E5%9B%AD%E7%9A%84%E9%80%83%E8%84%B1%EF%BD%9E%5Baop%E6%A8%A1%E6%8B%9F%E5%99%A8-%5B1%2B1.02g%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100470.md) - 2026-04-27，ID: 100470
 - [\\[自行打包\\] 性趣探测器S&M工作室S1_V1.0.26官中步兵版『PC★安卓★画廊』 \\[3+13.2G\\]\\[多种下载方式\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/27/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E6%80%A7%E8%B6%A3%E6%8E%A2%E6%B5%8B%E5%99%A8S-M%E5%B7%A5%E4%BD%9C%E5%AE%A4S1_V1.0.26%E5%AE%98%E4%B8%AD%E6%AD%A5%E5%85%B5%E7%89%88%E3%80%8EPC%E2%98%85%E5%AE%89%E5%8D%93%E2%98%85%E7%94%BB%E5%BB%8A%E3%80%8F-%5B3%2B13.2G%5D%5B%E5%A4%9A%E7%A7%8D%E4%B8%8B%E8%BD%BD%E6%96%B9%E5%BC%8F%5D-100328.md) - 2026-04-27，ID: 100328
+- [精选街拍作品 NO.5325 珍妮珍妮为你着迷](https://github.com/waldacops-creator/aifq/blob/main/2026/04/26/%E7%B2%BE%E9%80%89%E8%A1%97%E6%8B%8D%E4%BD%9C%E5%93%81-NO.5325-%E7%8F%8D%E5%A6%AE%E7%8F%8D%E5%A6%AE%E4%B8%BA%E4%BD%A0%E7%9D%80%E8%BF%B7-100483.md) - 2026-04-26，ID: 100483
 - [\\[自行打包\\] 【PC+安卓/SLG/主体官中/多人】勉强工作 Barely Working v19.0.0 \\[2+210M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/26/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90PC%2B%E5%AE%89%E5%8D%93-SLG-%E4%B8%BB%E4%BD%93%E5%AE%98%E4%B8%AD-%E5%A4%9A%E4%BA%BA%E3%80%91%E5%8B%89%E5%BC%BA%E5%B7%A5%E4%BD%9C-Barely-Working-v19.0.0-%5B2%2B210M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100406.md) - 2026-04-26，ID: 100406
 - [\\[高颜值\\] \\[自行打包\\] 私货精品高颜值好身材93 \\[1v+930m\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/26/%5B%E9%AB%98%E9%A2%9C%E5%80%BC%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E7%A7%81%E8%B4%A7%E7%B2%BE%E5%93%81%E9%AB%98%E9%A2%9C%E5%80%BC%E5%A5%BD%E8%BA%AB%E6%9D%9093-%5B1v%2B930m%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100379.md) - 2026-04-26，ID: 100379
 - [NO.1475 土豆大王之助眠版 黑油亮丝足 1V](https://github.com/waldacops-creator/aifq/blob/main/2026/04/26/NO.1475-%E5%9C%9F%E8%B1%86%E5%A4%A7%E7%8E%8B%E4%B9%8B%E5%8A%A9%E7%9C%A0%E7%89%88-%E9%BB%91%E6%B2%B9%E4%BA%AE%E4%B8%9D%E8%B6%B3-1V-100326.md) - 2026-04-26，ID: 100326

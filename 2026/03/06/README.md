@@ -1,5 +1,6 @@
 # 2026-03-06 文章列表
 
-本日共收录 1 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 2 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [\\[自行打包\\] 混沌之魂0.911官中步兵版【PC+安卓+精品像素RPG】Choas Fantasy \\[4+2.2G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/03/06/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E6%B7%B7%E6%B2%8C%E4%B9%8B%E9%AD%820.911%E5%AE%98%E4%B8%AD%E6%AD%A5%E5%85%B5%E7%89%88%E3%80%90PC%2B%E5%AE%89%E5%8D%93%2B%E7%B2%BE%E5%93%81%E5%83%8F%E7%B4%A0RPG%E3%80%91Choas-Fantasy-%5B4%2B2.2G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100341.md) - ID: 100341
 - [\\[自行打包\\] 太妃物语1到5季合集1.07.3c汉化版\\[PC-SLG\\] \\[1+3.94G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/03/06/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E5%A4%AA%E5%A6%83%E7%89%A9%E8%AF%AD1%E5%88%B05%E5%AD%A3%E5%90%88%E9%9B%861.07.3c%E6%B1%89%E5%8C%96%E7%89%88%5BPC-SLG%5D-%5B1%2B3.94G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100319.md) - ID: 100319

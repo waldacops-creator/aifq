@@ -1,0 +1,92 @@
+<!-- post_id: 109955 -->
+<!-- post_date: 2026-04-15 -->
+
+# \[自行打包\] \[欧美SLG/PC/乱伦/更新\] 老大哥： 另一个故事重建 v0.10.00 官中 \[1+1.80G\]\[百度盘\]
+
+资源下载链接：[https://afq001.com/109955.html](https://afq001.com/109955.html)
+
+---
+
+### 介绍
+
+游戏介绍：
+
+玩家将扮演麦克斯一个与母亲和两个妹妹生活在贫困家庭的穷小子
+
+然而，当你收到父亲送给你的礼物–一栋带游泳池的大房子时一切都改变了！
+
+但还是没有钱。
+
+游戏特点：
+
+-找到赚钱的方法，勾引你家里的女人！
+
+-追随任务线，解开家庭秘密。
+
+-角色扮演游戏对话和分支路径
+
+-高质量渲染（1920×1080）
+
+-沙盒游戏
+
+-腐蚀一个家庭 – 从纯真到性瘾
+
+变更日志：
+
+v0.10.00
+
+并非所有已完成的工作都列在这里。许多次要细节未列出。
+
+针对安：
+
+马克斯的第五个梦境已扩展；
+
+当马克斯和安一起坐着看电视时，他会产生一些幻想（这是完成 “妈妈，我们看什么呢？” 任务的奖励）。
+
+针对爱丽丝：
+
+新增 “派对着装” 任务，该任务在与埃里克共进第二次晚餐后开启（分为 2 个阶段）；
+
+如果马克斯有足够的钱，他可以带爱丽丝去服装店给她买一条裙子（此事件的内容取决于马克斯是否与爱丽丝达成了不穿内裤的约定）；
+
+买完裙子后，爱丽丝会开始在周五去俱乐部；
+
+爱丽丝的换衣集合已扩展；
+
+晚上 8:30，在爱丽丝去俱乐部之前，马克斯可以 “检查” 她是否遵守了不穿内裤的约定（针对爱丽丝在买裙子时违反该约定的情况）。
+
+针对莉萨：
+
+上午 10:30，在莉萨去上学之前，马克斯可以拥抱她（这是完成 “学校的秘密” 任务的奖励）；
+
+当马克斯吻莉萨的嘴唇、用糖果道歉并在她去上学前吻她的脸颊时，他会产生一些幻想（这是完成 “导师” 任务的奖励）；
+
+“新泳衣” 任务现在在与埃里克共进第二次晚餐后开启；
+
+如果马克斯有足够的钱，他可以带莉萨去服装店给她买泳衣（该事件的细节在很大程度上取决于与莉萨相关的其他任务的进展）；
+
+莉萨的换衣集合已扩展；
+
+♥查看更多福利♥
+
+### 预览图
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/in9sLpWSSLNN5oxny3hXcOiLFJ9IxsZ3.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/G6JyNHZUjZ57YS1CHGnVCQ3PLlydgydk.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/CW5zhIobWv3VzX0kmfQPOkbiY6m2QFPL.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/3teTOf1hsIiM4yX8j6whRT6OffVRvd3q.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/UXFsJsVr4zEgob1Nu5zaPs9mTOUA7S2w.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/lfw81JBVzAmgPWCyqiQoLP0cJ2BoMDvE.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/nZsBT5LYnBn3sNbbta8kOCz2BvzxkySX.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/20BfbdwoCt9Ln8Qfrg9yi35H2HaOkves.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/qcOcNzKHFqyFmE3zZti8CaQjymHXNqJW.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/NscqWBazu1RCjMtHtyxqWDdoHX9B8Vuq.webp)

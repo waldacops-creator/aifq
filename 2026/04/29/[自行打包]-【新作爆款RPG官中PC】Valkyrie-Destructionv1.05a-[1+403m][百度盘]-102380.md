@@ -1,0 +1,94 @@
+<!-- post_id: 102380 -->
+<!-- post_date: 2026-04-29 -->
+
+# \[自行打包\] 【新作爆款RPG官中PC】Valkyrie Destructionv1.05a \[1+403m\]\[百度盘\]
+
+资源下载链接：[https://afq001.com/102380.html](https://afq001.com/102380.html)
+
+---
+
+### 介绍
+
+■ 概要 ■
+
+poison推出的 erotic RPG系列第四弹！
+
+以”高自由度”为主题制作的自由剧本、多结局RPG。
+
+你将扮演盗贼巴兹，可以选择帮助女主角女武神，
+
+也可以利用她的弱点对其进行凌○或强迫卖淫，是一款无所不能的RPG。
+
+根据玩家的行动，游戏将迎来多达11种不同的结局。
+
+请尽情享受《ValkyrieDestruction》的世界。
+
+■ 故事 ■
+
+世间悄然流传着魔王现身的传闻…
+
+人们生活在因怪物逐渐增多而惶恐不安的世界中。
+
+与这些人心态截然不同，盗贼巴兹过着天上天下唯我独尊的生活，
+
+今天也随心所欲地继续着他的盗贼生涯。
+
+某天，巴兹听说有伙山贼被怪物袭击，便打算去他们的巢穴抢夺财宝。
+
+但他运气不佳，自己也遭到了怪物袭击，不过幸运的是，一位路过的女武神救了他。
+
+面对本应是救命恩人的女武神，巴兹却抓住了她的弱点，
+
+他的要求从一开始到结束，不断地变本加厉。
+
+■ 推荐亮点 ■
+
+・不像普通RPG那样有固定的路线。游戏开始即可自由前往任何地点。
+
+抓住身负讨伐魔王使命的女武神的弱点，
+
+尽情地绕远路，让她遭遇各种H的事情吧。
+
+对待女武神的方式会影响其参数上升，
+
+最终将迎来11种结局中的某一种。
+
+・主人公可以在战斗中从女武神背后进行干扰，
+
+学习各种干扰技能。
+
+请干扰拼命战斗的女武神，有时让她获胜，有时引导她走向败北。
+
+除了与试炼相关的战斗外，所有战斗失败都会触发H事件。
+
+请享受各式各样的事件吧。
+
+・随着游戏推进，满足特定条件后，除了普通的瓦尔基里铠甲外，
+
+还可以获得触手铠甲、全裸徘徊状态。
+
+不仅有穿着各自服装时才会发生的事件，
+
+还有根据服装产生的差分，甚至少量NPC对话的变化等，
+
+希望大家能多方探索，乐在其中。
+
+・结局后，基本会保留等级和道具，仅重置与结局相关的参数，
+
+可以重新开始游戏，请尝试各种玩法，争取达成CG全集。
+
+♥查看更多福利♥
+
+### 预览图
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/vZIedbbSSiP3jAOV3JvWazZapZu6SkTI.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/NVjHQAPJwg5z7RLbV22dcoh6zM8f1MpW.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/hLfgMGmOV1eneto3cNYjBqLIaNH766nH.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/SUFoZmivimku8RvE04cAYGanMkUwJ8x8.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/xcUabTsIn9RNxgpH7ej4TERYv5jfHjMq.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/uhrp3NUAqzcvAzNOwm83mjUxmjU3MT6X.webp)

@@ -1,0 +1,74 @@
+<!-- post_id: 112962 -->
+<!-- post_date: 2026-01-09 -->
+
+# \[自行打包\] \[日式ADV/PC/更新\] 我的抖S女友 エスv1.1.21 Steam官方中文步兵版 \[1+860M\]\[百度盘\]
+
+资源下载链接：[https://afq001.com/112962.html](https://afq001.com/112962.html)
+
+---
+
+### 介绍
+
+关于此游戏
+
+纱友里和她的男朋友浩輔是情侣酒店的常客。
+
+在一个特别的夜晚，他们沉浸在激情过后的余韵中，彼此对视，心照不宣地意识到一个问题……
+
+他们的性生活中似乎缺少了些什么。
+
+恰巧，这对情侣再次光顾他们最喜欢的情侣酒店时，惊喜地收到了一份神秘礼物以感谢他们的再次光临——
+
+一套SM入门套装！毛茸茸的手铐、乳胶内衣、项圈，还有最棒的：一个巨大的黑色假阳具！
+
+也许这正是他们所需要的，为他们的爱情生活注入新的激情！
+
+唯一的问题是……浩輔从来没想过自己会成为一个抖M。
+
+但看到他平时温柔的女朋友眼中闪烁着虐待狂的光芒，他不得不问自己一个每个男人都会思考的问题：
+
+他能接受一个抖S女上位的女友吗？
+
+游戏特色
+
+原版日式视觉小说的翻译版本
+
+Sayuri 的所有对话均由原版日语配音
+
+原版美术作品升级至全高清
+
+数小时的故事内容
+
+包含音乐和音效的音频
+
+增强版动画角色立绘
+
+图库和场景选择
+
+15 个 纱友里探索 SM 套装内容并展现女性抖s魅力的 H 场景！
+
+更新日志：
+
+v1.1.21
+
+修复了一些bug
+
+♥查看更多福利♥
+
+### 预览图
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/16/q3gFYF4or98G3XNczmENzRrXD9Vksc9g.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/16/YcF2fti9pfTwMUbSfUk88wj48v0sgOGO.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/16/JO3LVBnyFY9RqWT19WaIR2zu9gzxfumU.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/16/Pow0dMUf412E68Gxs89xg3FuuQRGgcxE.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/16/Ip1zZ24F8BAOiqdFtBOZphLSIm6fLqje.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/16/oyMW0gLAcc6vqu7VcfSZwHLhZlwoLSRX.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/16/b7TLd8qEnSLIhcYv2ydd7BekI2KPewky.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/16/cfc5gsnOMjGq3xYBhKLTXBhoxoYKtga7.webp)

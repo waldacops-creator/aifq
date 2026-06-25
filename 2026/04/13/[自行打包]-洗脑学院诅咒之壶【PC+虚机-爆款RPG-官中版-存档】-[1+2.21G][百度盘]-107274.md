@@ -1,0 +1,62 @@
+<!-- post_id: 107274 -->
+<!-- post_date: 2026-04-13 -->
+
+# \[自行打包\] 洗脑学院诅咒之壶【PC+虚机/爆款RPG/官中版/存档】 \[1+2.21G\]\[百度盘\]
+
+资源下载链接：[https://afq001.com/107274.html](https://afq001.com/107274.html)
+
+---
+
+### 介绍
+
+游戏介绍：
+
+这是一款模拟角色扮演游戏，利用洗脑的力量将学校变成情色场所！
+
+作为一名军师，利用洗脑咒的力量让学校充满色情色彩的模拟RPG!!
+
+主角被神秘男子赋予洗脑之力，并被要求与该男子的侄女“正光佳苗”一起潜入学校，勾引校长。
+
+他是否应该毁掉学校，实现他的愿望呢？
+
+调查学校的谜团，找到真相……
+
+・色情行为成为常态，学生们互相触碰身体！
+
+・一边上课一边进行性行为的淫乱教师！
+
+・被体育老师当作性处理工具的偶像学生！
+
+・被洗脑的学生们轮奸的萝莉少女！
+
+・被校工大叔不断播种的少女们！
+
+★部分场景采用了 Spine 动画技术。
+
+※主人公担任军师职位，不太参与 H 场景。
+
+虚机说明：
+
+PS：手机玩家建议用模拟器直接运行 PC 版。
+
+AZ 目录内已提供盖世模拟器，支持自定义导入 exe 文件安装解压（请下载完整文件）。
+
+目录里也附带了其他主流模拟器的网盘链接，基本市面常用的都有，可按需选择。
+
+优先使用盖世模拟器，若无法运行再尝试 Joi，仍不行可换 Winlator 等其他模拟器。
+
+不同手机机型适配效果不同，多试一款总能正常运行。
+
+♥查看更多福利♥
+
+### 预览图
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/18/qXUyHrGrW4dBEVB0RL0hE0bjaehuSHQV.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/18/YPJa2LUDPwl4bMWEy3RNwkbi87XRFSST.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/18/yi3Tf1SgL67SNtoDbPW0UyIjH5nBONiY.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/18/2m3Irfy5OLLog4QTAjKjJOI4xc8y395P.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/18/PnD73Thg0fopIJwGkVTNDL9f5KjJ1U8o.webp)

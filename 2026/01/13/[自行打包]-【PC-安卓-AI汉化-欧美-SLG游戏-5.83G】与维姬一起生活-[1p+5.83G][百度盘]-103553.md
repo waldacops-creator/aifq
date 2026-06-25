@@ -1,0 +1,64 @@
+<!-- post_id: 103553 -->
+<!-- post_date: 2026-01-13 -->
+
+# \[自行打包\] 【PC/安卓/AI汉化/欧美/SLG游戏/5.83G】与维姬一起生活 \[1p+5.83G\]\[百度盘\]
+
+资源下载链接：[https://afq001.com/103553.html](https://afq001.com/103553.html)
+
+---
+
+### 介绍
+
+家庭变故，情感由你掌控！《与维姬一起生活》Ver6.0 AI汉化版发布轻量即玩。
+
+家庭沙盒、多结局、动态CG全解锁，PC+安卓双端畅玩，立即下载开启你的
+
+新生活！
+
+与维姬一起生活 Ver6.0 AI汉化版+PC+安卓+欧美SLG游戏+5.83G
+
+游戏介绍
+
+《与维姬一起生活》Ver6.0 是一部家庭情感向SLG。父母离异后，你与母亲维姬搬进
+
+父亲留下的新家。新环境、新规则，让你必须面对与母亲关系的重新定义：是修复
+
+亲情，还是走向堕落？优化字体与动画，轻量封装，带来更流畅的家庭日常体验。
+
+游戏特色
+
+家庭沙盒：客厅、厨房、后院、街区等8+区域自由探索，昼夜事件动态刷新
+
+情感系统：亲情值+叛逆值双向指标，影响对话选项与结局走向
+
+多结局分支：亲情修复、暧昧同居、彻底堕落等6种终章，成就系统记录
+
+动态CG+动画：60帧高清演出，新增大量日常互动场景，画廊全解锁
+
+多身份选择：孝顺儿子、叛逆青年、暧昧对象，自由塑造MC形象
+
+游戏故事
+
+搬进新家第一夜，维姬为你制定”新生活规则”。你可以选择：
+
+遵守约定，修复母子亲情
+
+暧昧试探，跨越家庭边界
+
+彻底叛逆，走向堕落深渊
+
+每一次选择，都会影响维姬的态度与最终结局。
+
+♥查看更多福利♥
+
+### 预览图
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/20/ux5Oq4zCSdXguSr3XNI6E4wtNZTdOpol.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/20/OUAoJU2bVfOu42dnc8bfQRYSh7kcuDNh.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/20/jgOiTAHSNjbtxaSqtn2qIVhXPGO8rprF.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/20/5JvRTFXw3QRpGEH6eMZelg0vMICHUOCL.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/20/OZUPk7EqFu7sF4jRe0qYGVGAgIxSxQHC.webp)

@@ -1,0 +1,62 @@
+<!-- post_id: 101921 -->
+<!-- post_date: 2026-02-25 -->
+
+# \[自行打包\] 【ACT/官中/猎奇/女主人公/动态/PC/安卓模拟器】终焉的魔女 v1.0 官方正式版 \[1+870MB\]\[百度盘\]
+
+资源下载链接：[https://afq001.com/101921.html](https://afq001.com/101921.html)
+
+---
+
+### 介绍
+
+背景故事
+
+世界曾一度被永恒的黄昏所笼罩。
+
+大陆之底，深渊的裂隙崩塌坠落，黑暗领主以绝望为食粮，将亡者化为军团，将文明碾碎为灰烬。
+
+众神陷入沉睡，诸国分崩离析。
+
+唯有一人——那被人们畏惧、遭到放逐的魔女——继承着太古禁忌的黑暗与星辰之力。
+
+她不求救赎，亦不乞求怜悯。
+
+为斩断黑暗的轮回，她独自踏入被诅咒的废土，以镰刀为刃，逆着尸骸与哀叹前行，向黑暗领主的漆黑王座发起挑战，立誓完成唯一的复仇。
+
+这是一场以绝望讨伐黑暗、以孤高之勇燃尽深渊的战争。
+
+♥查看更多福利♥
+
+### 预览图
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/cgB69MMfh3e5JvsJNKA5borOk4hSU1BW.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/hO2cikJnjatoFboJ3uwA4uU9VNFEh3RX.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/D4I9Hx997YU9znDefUS1Uy6AZx84ILiO.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/zf6LAbQlmnLxw5nbldoGn9XwetwCl2EI.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/8XkCyL8aOsc5bYZAlxsJGNC0bYXL19T5.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/EDOLxiLKnRWioSiR19bIpWgpzBqVQxx7.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/RJeiNiBqzPHzPjMunzyHyi8JT1Dns7FA.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/LaACgvdSIcS5xufgvWXoFCcGwn9c6jU7.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/lcAn4r5pHsZ27srZTHP6551NMdjiViRb.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/avH7eG5WrI9OZkr2kaQOrufpzIpLhc1a.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/6Ckp7pBC1AmCrFao0YjOYW109YjiEby5.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/yxXADj7w1wzHEA1TQclXeCobRsrvEvzu.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/Xtoq6fBdSpJKTurvB4cm3cu2CL1wGIPc.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/QFuqVvmenmprk6xedT6Q45ruGN0Pxb1R.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/GEXZ7VRr4wtLccXL0E6AvHdQKqW6QWZP.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/0iHrXqZCRy4lv5nQmLZhG1QB0RaRD8wa.webp)

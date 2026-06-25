@@ -1,0 +1,78 @@
+<!-- post_id: 102112 -->
+<!-- post_date: 2026-05-04 -->
+
+# \[自行打包\] \[RPG汉化PC存档\] 锈蚀地下城2 ラスティーダンジョン2 v1.0a \[1+800M\]\[百度盘\]
+
+资源下载链接：[https://afq001.com/102112.html](https://afq001.com/102112.html)
+
+---
+
+### 介绍
+
+✅社团名：#ビタミンごはん
+
+▫️名称：锈蚀地下城2
+
+▫️原名：ラスティーダンジョン2
+
+▫️版本：v1.0a
+
+▫️贩卖日：2026年03月15日 0时
+
+▫️标签：#RPG #AI汉化 #PC #MTool #存档 #怀孕 #西瓜肚 #精灵 #后宫 #野外
+
+这是一款兼具冒险与H内容的正统风格RPG第二弹！
+
+~正统进化！~
+
+故事舞台位于北方边境广阔的迷宫群。身为经验丰富的冒险者，你，将目标指向沉睡在冻土中的秘密！小国的公主、从森林中走出的精灵，以及流浪的剑士……将三位女主角纳入队伍，全新的冒险开始了！
+
+本作是以超过70张基本CG立绘和丰富的妊娠差分呈现的“受孕角色扮演游戏”第二弹！
+
+（※即使未玩过前作也完全没问题！
+
+操作与游玩注意事项
+
+・H场景基本上需要在旅馆“小鸟旅馆”的菜单中，选择“亲交”选项，并消耗任务通关道具“莫斯雷的辉光”来触发。
+
+※购买别墅后，可以不消耗辉光，播放跳过场景的版本（仅进行数值加成）。
+
+・存档数据目前虽然可以继承自正式版，但也有可能发生意想不到的故障。此外，未来游戏进行更新后，无法保证存档能够继续迁移。敬请事先谅解。
+
+※在体验版中未能取得的成就，可以通过与回想房间的NPC对话来重新获得。今后追加新成就时也同样适用此方法。
+
+・操作等说明
+
+本游戏支持键盘、手柄和鼠标操作。
+
+由于各输入设备会分别等待各自的输入指令，※请勿同时使用不同的设备※
+
+（例如：一边用手柄操作，一边用鼠标进行选择）。这可能会导致意想不到的运作故障。
+
+※请勿在“鼠标悬停在旅馆的UI按钮上的状态下”“点击鼠标右键”※
+
+若发生操作混乱，请尝试将鼠标再次悬停在按钮上，或点击消息框使其恢复到待命状态。
+
+♥查看更多福利♥
+
+### 预览图
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/JpjrgEbCUweD5Ef6i8GXMwzaHFvfUE5f.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/0WM4Jc0XQQcwnma4qWg33AQ3Y2yeevYT.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/Cg6ShyGLf6wrjcKJizDkt7o8iGhQp5Hr.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/eXsxyOBY9aikheX15sAjotR4Q8YkjqJW.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/vCF0zsvbu0z5yhuwHeY8wCcGYp5Bu17P.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/ygkJnCIEf6q1dNk4AHu99o7MGu6B101K.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/UDMQMTs6Z5iuP2N6s0XXGj2e8AktYyqE.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/3YcTuGXKqKGY7zExFkztzNR7ib8j1IgQ.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/GtbSrTo648C6jT4Qr1V3xDz5TLahtz8E.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/22/mfPltqF9Q2FmObyUTzPkWcxyep9jmZi3.webp)

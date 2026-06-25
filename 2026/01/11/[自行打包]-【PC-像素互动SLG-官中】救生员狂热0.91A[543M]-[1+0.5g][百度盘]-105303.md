@@ -1,0 +1,26 @@
+<!-- post_id: 105303 -->
+<!-- post_date: 2026-01-11 -->
+
+# \[自行打包\] 【PC/像素互动SLG/官中】救生员狂热0.91A\[543M\] \[1+0.5g\]\[百度盘\]
+
+资源下载链接：[https://afq001.com/105303.html](https://afq001.com/105303.html)
+
+---
+
+### 介绍
+
+房东龙之介的堂哥「龙马」，曾经是大学游泳队的队长，因为受伤而被迫中止运动员生涯。某天龙马在一场赌局击败了当地企业家，赢得了一座游泳池的所有权，成为了一名「救生员」。在这座充满着美女的游泳池，龙马要一边经营游泳池，一边利用自己运动员的健壮身材与傲人体力，填满清纯害羞的女大生「水原苍唯」等美女们寂寞的身与心。
+
+无论她们有没有男朋友，感情多麽坚定，做为一个传奇的救生员，你必能将她们都抢夺过来！
+
+♥查看更多福利♥
+
+### 预览图
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/6XgcLuASvfKRmmv5HfSWKNQfBg60SKrP.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/pcAn9eqE4XqXZi0OcUE9Rs05rjlHlTas.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/G4mXyWFwPXwOIYmX1F7xuvTW4xSR5lyS.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/8/qt0dFFzgTGPpjlJ6U6xxmYV7A5kvYqpX.webp)

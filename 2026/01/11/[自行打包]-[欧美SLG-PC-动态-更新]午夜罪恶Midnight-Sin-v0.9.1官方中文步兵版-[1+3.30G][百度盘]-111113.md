@@ -1,0 +1,100 @@
+<!-- post_id: 111113 -->
+<!-- post_date: 2026-01-11 -->
+
+# \[自行打包\] \[欧美SLG/PC/动态/更新\]午夜罪恶Midnight Sin v0.9.1官方中文步兵版 \[1+3.30G\]\[百度盘\]
+
+资源下载链接：[https://afq001.com/111113.html](https://afq001.com/111113.html)
+
+---
+
+### 介绍
+
+游戏简介
+
+《一家之主》、《梅林庄园》制作组最新力作，
+
+这款《午夜罪恶》也是延续了前两作的高水平剧本，
+
+而建模和光影专视觉方面的打造则更加成熟逼真，带来极致的视觉享受!
+
+故事讲述了在一桩谋杀案发生后，一位神秘女子为你提供了一份工作，保护她和她三个美丽的女儿免受伤害。
+
+你的运气似乎终于好转了。然而，这个看似偶然的机会却揭示了一个远超你想象的充满欲望和腐败的世界
+
+你会解开笼罩在你新雇主和她女儿们生活中的谜团吗？还是会屈服于诱惑，沉溺于罪恶的魅力？
+
+在 Faerin 这款全新的沙盒冒险游戏中，探索一座豪华宅邸，揭开其隐藏的秘密。
+
+深入了解每个女孩独特的故事线和内心深处的欲望，与她们建立激动人心且意义深远的关系
+
+更新日志：
+
+更新日志：
+
+v0.9.1
+
+故事
+
+• 为雅各布添加了新场景。
+
+• 新增了纳丁的介绍场景。
+
+• 新增了格斗俱乐部的场景。
+
+• 为调查委员会增添了更多线索。
+
+• 为雅各布增加了开放对话。
+
+• 将纳丁的办公室加入了《B&F》。
+
+• 将约翰的办公室加入了《B&F》（为下一次更新做准备）。
+
+• 为Nadine增加了开放对话。
+
+• 为Aaron新增了一个开放对话主题，并更新了他之前的一些主题。
+
+• 为艾萨克新增了一个开放对话主题，并更新了他之前的一些主题。
+
+• 为Lisa新增了一个开放对话主题，并更新了他之前的一些主题。
+
+游戏玩法
+
+• 你可以在各个地点中找到隐藏的可收集图片。这些
+
+奖励可以通过交换奖励点数来锁定。
+
+（目前，维多利亚是唯一拥有额外图片的，但下一次更新中会有
+
+更多。当你找到同一组的所有图片时，会自动解锁一个
+
+简短的额外场景和动画。）
+
+• 在回忆和额外图片中添加了一次性的“新”图标。
+
+♥查看更多福利♥
+
+### 预览图
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/eP3MDdvAQDu7cpv2GlR2XRWvuDmCAAiz.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/sGhtUyrSdVl6G19ILEOFsWM5jDIWR2hH.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/siBDvQTQAri88NklgMwZE6qBeXTEAF5z.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/GcqbjCINMj9BPe6n0xNhn4hS3fcyL8TJ.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/5fAzEcEPgpE15moIL54oiXwSQ3qFtlBX.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/DymIT43wO32r2rOFnoDd0RAknyduMCPI.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/RCoVlsW3OcRM6Iglg9VeVjs0nTGpk9pb.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/Bc3FNdabcGoJP1mxMc7hpeX0BEw7gWHo.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/lbLCpWDWZGcGpNItwfjkEROKF2d15zl3.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/nEf4PSjhcWQmTv3KxPrAHLj0xoeava6b.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/2AlWgVnB9dia7QMWv4XZiBZ3CgzdujcD.webp)
+
+![None](https://img.tiao.eu.cc/c1-img2/upimg/2026/3/6/ryPSXrOu2RDWvZ088sFIuk8RrZMuxIeR.webp)

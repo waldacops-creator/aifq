@@ -1,7 +1,8 @@
 # 2026-04-09 文章列表
 
-本日共收录 4 篇文章，点击标题可以查看完整 Markdown 内容。
+本日共收录 5 篇文章，点击标题可以查看完整 Markdown 内容。
 
+- [\\[自行打包\\] 【新作RPGAI汉化PC】シエラの淫らな異変調査 -女剣士はソ… \\[1+1.7G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/09/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90%E6%96%B0%E4%BD%9CRPGAI%E6%B1%89%E5%8C%96PC%E3%80%91%E3%82%B7%E3%82%A8%E3%83%A9%E3%81%AE%E6%B7%AB%E3%82%89%E3%81%AA%E7%95%B0%E5%A4%89%E8%AA%BF%E6%9F%BB--%E5%A5%B3%E5%89%A3%E5%A3%AB%E3%81%AF%E3%82%BD%E2%80%A6-%5B1%2B1.7G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100527.md) - ID: 100527
 - [\\[腿控足控\\] \\[转载搬运\\] 夏夏子_GQuuuuuuX玛秋 \\[74P\\] \\[74P+400m\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/09/%5B%E8%85%BF%E6%8E%A7%E8%B6%B3%E6%8E%A7%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-%E5%A4%8F%E5%A4%8F%E5%AD%90_GQuuuuuuX%E7%8E%9B%E7%A7%8B-%5B74P%5D-%5B74P%2B400m%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100507.md) - ID: 100507
 - [\\[自行打包\\] 更新\\[SLGpc\\]疯狂岛生存游戏V0.5.8.2 Beta官方中文版DLC去码台代码 \\[1+1.30G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/09/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E6%9B%B4%E6%96%B0%5BSLGpc%5D%E7%96%AF%E7%8B%82%E5%B2%9B%E7%94%9F%E5%AD%98%E6%B8%B8%E6%88%8FV0.5.8.2-Beta%E5%AE%98%E6%96%B9%E4%B8%AD%E6%96%87%E7%89%88DLC%E5%8E%BB%E7%A0%81%E5%8F%B0%E4%BB%A3%E7%A0%81-%5B1%2B1.30G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100358.md) - ID: 100358
 - [\\[里番\\] \\[自行打包\\] 风AI解码 アネハメ_俺の初恋が実姉なわけがない1-2 \\[2V+419M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/09/%5B%E9%87%8C%E7%95%AA%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E9%A3%8EAI%E8%A7%A3%E7%A0%81-%E3%82%A2%E3%83%8D%E3%83%8F%E3%83%A1_%E4%BF%BA%E3%81%AE%E5%88%9D%E6%81%8B%E3%81%8C%E5%AE%9F%E5%A7%89%E3%81%AA%E3%82%8F%E3%81%91%E3%81%8C%E3%81%AA%E3%81%841-2-%5B2V%2B419M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100337.md) - ID: 100337

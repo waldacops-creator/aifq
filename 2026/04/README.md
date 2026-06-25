@@ -1,14 +1,15 @@
 # 2026-04 文章索引
 
-2026 年 04 月共收录 29 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
+2026 年 04 月共收录 33 篇文章。下面按日期归档，日期页面会列出当天所有文章标题。
 
 ## 日期目录
 
+- [2026-04-30](https://github.com/waldacops-creator/aifq/blob/main/2026/04/30/README.md) - 1 篇文章
 - [2026-04-29](https://github.com/waldacops-creator/aifq/blob/main/2026/04/29/README.md) - 1 篇文章
 - [2026-04-27](https://github.com/waldacops-creator/aifq/blob/main/2026/04/27/README.md) - 1 篇文章
 - [2026-04-26](https://github.com/waldacops-creator/aifq/blob/main/2026/04/26/README.md) - 4 篇文章
 - [2026-04-24](https://github.com/waldacops-creator/aifq/blob/main/2026/04/24/README.md) - 3 篇文章
-- [2026-04-22](https://github.com/waldacops-creator/aifq/blob/main/2026/04/22/README.md) - 5 篇文章
+- [2026-04-22](https://github.com/waldacops-creator/aifq/blob/main/2026/04/22/README.md) - 6 篇文章
 - [2026-04-19](https://github.com/waldacops-creator/aifq/blob/main/2026/04/19/README.md) - 1 篇文章
 - [2026-04-18](https://github.com/waldacops-creator/aifq/blob/main/2026/04/18/README.md) - 1 篇文章
 - [2026-04-17](https://github.com/waldacops-creator/aifq/blob/main/2026/04/17/README.md) - 1 篇文章
@@ -17,10 +18,13 @@
 - [2026-04-10](https://github.com/waldacops-creator/aifq/blob/main/2026/04/10/README.md) - 1 篇文章
 - [2026-04-09](https://github.com/waldacops-creator/aifq/blob/main/2026/04/09/README.md) - 3 篇文章
 - [2026-04-08](https://github.com/waldacops-creator/aifq/blob/main/2026/04/08/README.md) - 1 篇文章
+- [2026-04-06](https://github.com/waldacops-creator/aifq/blob/main/2026/04/06/README.md) - 1 篇文章
+- [2026-04-05](https://github.com/waldacops-creator/aifq/blob/main/2026/04/05/README.md) - 1 篇文章
 - [2026-04-01](https://github.com/waldacops-creator/aifq/blob/main/2026/04/01/README.md) - 2 篇文章
 
 ## 本月文章
 
+- [\\[自行打包\\] 【欧美SLG/汉化/完结】与女神一起被隔离v1.0完结 PC+安卓AI版 \\[1+867M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/30/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90%E6%AC%A7%E7%BE%8ESLG-%E6%B1%89%E5%8C%96-%E5%AE%8C%E7%BB%93%E3%80%91%E4%B8%8E%E5%A5%B3%E7%A5%9E%E4%B8%80%E8%B5%B7%E8%A2%AB%E9%9A%94%E7%A6%BBv1.0%E5%AE%8C%E7%BB%93-PC%2B%E5%AE%89%E5%8D%93AI%E7%89%88-%5B1%2B867M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100426.md) - 2026-04-30，ID: 100426
 - [chuchu Vtuber赤井心 赤井はあと【94P1V2.84G】](https://github.com/waldacops-creator/aifq/blob/main/2026/04/29/chuchu-Vtuber%E8%B5%A4%E4%BA%95%E5%BF%83-%E8%B5%A4%E4%BA%95%E3%81%AF%E3%81%82%E3%81%A8%E3%80%9094P1V2.84G%E3%80%91-100405.md) - 2026-04-29，ID: 100405
 - [\\[自行打包\\] 性趣探测器S&M工作室S1_V1.0.26官中步兵版『PC★安卓★画廊』 \\[3+13.2G\\]\\[多种下载方式\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/27/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E6%80%A7%E8%B6%A3%E6%8E%A2%E6%B5%8B%E5%99%A8S-M%E5%B7%A5%E4%BD%9C%E5%AE%A4S1_V1.0.26%E5%AE%98%E4%B8%AD%E6%AD%A5%E5%85%B5%E7%89%88%E3%80%8EPC%E2%98%85%E5%AE%89%E5%8D%93%E2%98%85%E7%94%BB%E5%BB%8A%E3%80%8F-%5B3%2B13.2G%5D%5B%E5%A4%9A%E7%A7%8D%E4%B8%8B%E8%BD%BD%E6%96%B9%E5%BC%8F%5D-100328.md) - 2026-04-27，ID: 100328
 - [\\[自行打包\\] 【PC+安卓/SLG/主体官中/多人】勉强工作 Barely Working v19.0.0 \\[2+210M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/26/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90PC%2B%E5%AE%89%E5%8D%93-SLG-%E4%B8%BB%E4%BD%93%E5%AE%98%E4%B8%AD-%E5%A4%9A%E4%BA%BA%E3%80%91%E5%8B%89%E5%BC%BA%E5%B7%A5%E4%BD%9C-Barely-Working-v19.0.0-%5B2%2B210M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100406.md) - 2026-04-26，ID: 100406
@@ -30,6 +34,7 @@
 - [\\[自行打包\\] PC更新\\[探索ACT/黑暗/血腥\\] 终焉的圣女 ender saint Demo v0.0.6 官中 \\[1+3.2g\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/24/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-PC%E6%9B%B4%E6%96%B0%5B%E6%8E%A2%E7%B4%A2ACT-%E9%BB%91%E6%9A%97-%E8%A1%80%E8%85%A5%5D-%E7%BB%88%E7%84%89%E7%9A%84%E5%9C%A3%E5%A5%B3-ender-saint-Demo-v0.0.6-%E5%AE%98%E4%B8%AD-%5B1%2B3.2g%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100386.md) - 2026-04-24，ID: 100386
 - [\\[自行打包\\] \\[日式SLG/PC/新作\\]巨乳美食速递今天有巨乳娇小外卖员1.10 汉化 \\[1+490M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/24/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5B%E6%97%A5%E5%BC%8FSLG-PC-%E6%96%B0%E4%BD%9C%5D%E5%B7%A8%E4%B9%B3%E7%BE%8E%E9%A3%9F%E9%80%9F%E9%80%92%E4%BB%8A%E5%A4%A9%E6%9C%89%E5%B7%A8%E4%B9%B3%E5%A8%87%E5%B0%8F%E5%A4%96%E5%8D%96%E5%91%981.10-%E6%B1%89%E5%8C%96-%5B1%2B490M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100376.md) - 2026-04-24，ID: 100376
 - [\\[SM\\] \\[自行打包\\] 玩物 佳佳 吞精教学 \\[1V+586M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/24/%5BSM%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E7%8E%A9%E7%89%A9-%E4%BD%B3%E4%BD%B3-%E5%90%9E%E7%B2%BE%E6%95%99%E5%AD%A6-%5B1V%2B586M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100366.md) - 2026-04-24，ID: 100366
+- [\\[图片\\] \\[转载搬运\\] \\[もちどら\\] 淫習島の看護師は島民の子種を孕む NTR/人妻/轮 \\[1+91MB\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/22/%5B%E5%9B%BE%E7%89%87%5D-%5B%E8%BD%AC%E8%BD%BD%E6%90%AC%E8%BF%90%5D-%5B%E3%82%82%E3%81%A1%E3%81%A9%E3%82%89%5D-%E6%B7%AB%E7%BF%92%E5%B3%B6%E3%81%AE%E7%9C%8B%E8%AD%B7%E5%B8%AB%E3%81%AF%E5%B3%B6%E6%B0%91%E3%81%AE%E5%AD%90%E7%A8%AE%E3%82%92%E5%AD%95%E3%82%80-NTR-%E4%BA%BA%E5%A6%BB-%E8%BD%AE-%5B1%2B91MB%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100423.md) - 2026-04-22，ID: 100423
 - [约操达人《胡子哥》-11【2.4G】](https://github.com/waldacops-creator/aifq/blob/main/2026/04/22/%E7%BA%A6%E6%93%8D%E8%BE%BE%E4%BA%BA%E3%80%8A%E8%83%A1%E5%AD%90%E5%93%A5%E3%80%8B-11%E3%80%902.4G%E3%80%91-100383.md) - 2026-04-22，ID: 100383
 - [\\[自行打包\\] \\[双端欧美SLG\\]坏人公司0.1.18汉化版PC+安卓 \\[2+12g\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/22/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5B%E5%8F%8C%E7%AB%AF%E6%AC%A7%E7%BE%8ESLG%5D%E5%9D%8F%E4%BA%BA%E5%85%AC%E5%8F%B80.1.18%E6%B1%89%E5%8C%96%E7%89%88PC%2B%E5%AE%89%E5%8D%93-%5B2%2B12g%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100371.md) - 2026-04-22，ID: 100371
 - [\\[自拍\\] \\[自行打包\\] 南昌超顶抖音网红，粉丝喊“千千老婆”，评论区全是舔狗 \\[1V+400M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/22/%5B%E8%87%AA%E6%8B%8D%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E5%8D%97%E6%98%8C%E8%B6%85%E9%A1%B6%E6%8A%96%E9%9F%B3%E7%BD%91%E7%BA%A2%EF%BC%8C%E7%B2%89%E4%B8%9D%E5%96%8A%E2%80%9C%E5%8D%83%E5%8D%83%E8%80%81%E5%A9%86%E2%80%9D%EF%BC%8C%E8%AF%84%E8%AE%BA%E5%8C%BA%E5%85%A8%E6%98%AF%E8%88%94%E7%8B%97-%5B1V%2B400M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100346.md) - 2026-04-22，ID: 100346
@@ -48,5 +53,7 @@
 - [\\[里番\\] \\[自行打包\\] 风AI解码 アネハメ_俺の初恋が実姉なわけがない1-2 \\[2V+419M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/09/%5B%E9%87%8C%E7%95%AA%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E9%A3%8EAI%E8%A7%A3%E7%A0%81-%E3%82%A2%E3%83%8D%E3%83%8F%E3%83%A1_%E4%BF%BA%E3%81%AE%E5%88%9D%E6%81%8B%E3%81%8C%E5%AE%9F%E5%A7%89%E3%81%AA%E3%82%8F%E3%81%91%E3%81%8C%E3%81%AA%E3%81%841-2-%5B2V%2B419M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100337.md) - 2026-04-09，ID: 100337
 - [\\[3D\\] \\[自行打包\\] \\[3D/无修/CV\\] 猎空 +黑百合+天使+D.Va+黑影 性感御姐 骑乘后入中出 \\[1+2.3g\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/09/%5B3D%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%5B3D-%E6%97%A0%E4%BF%AE-CV%5D-%E7%8C%8E%E7%A9%BA-%2B%E9%BB%91%E7%99%BE%E5%90%88%2B%E5%A4%A9%E4%BD%BF%2BD.Va%2B%E9%BB%91%E5%BD%B1-%E6%80%A7%E6%84%9F%E5%BE%A1%E5%A7%90-%E9%AA%91%E4%B9%98%E5%90%8E%E5%85%A5%E4%B8%AD%E5%87%BA-%5B1%2B2.3g%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100304.md) - 2026-04-09，ID: 100304
 - [\\[自行打包\\] 【RPG/官中/PC】女武神毁灭 Valkyrie Destruction v1.05a \\[1+420M\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/08/%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E3%80%90RPG-%E5%AE%98%E4%B8%AD-PC%E3%80%91%E5%A5%B3%E6%AD%A6%E7%A5%9E%E6%AF%81%E7%81%AD-Valkyrie-Destruction-v1.05a-%5B1%2B420M%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100374.md) - 2026-04-08，ID: 100374
+- [\\[合集\\] \\[自行打包\\] 意淫自己妹妹129-139(含钻石视频) \\[4vnp+0.98G\\]\\[百度盘\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/06/%5B%E5%90%88%E9%9B%86%5D-%5B%E8%87%AA%E8%A1%8C%E6%89%93%E5%8C%85%5D-%E6%84%8F%E6%B7%AB%E8%87%AA%E5%B7%B1%E5%A6%B9%E5%A6%B9129-139%28%E5%90%AB%E9%92%BB%E7%9F%B3%E8%A7%86%E9%A2%91%29-%5B4vnp%2B0.98G%5D%5B%E7%99%BE%E5%BA%A6%E7%9B%98%5D-100420.md) - 2026-04-06，ID: 100420
+- [【RPG/AI汉化/PC】向日葵的心跳 ひまりの鼓動【420M】](https://github.com/waldacops-creator/aifq/blob/main/2026/04/05/%E3%80%90RPG-AI%E6%B1%89%E5%8C%96-PC%E3%80%91%E5%90%91%E6%97%A5%E8%91%B5%E7%9A%84%E5%BF%83%E8%B7%B3-%E3%81%B2%E3%81%BE%E3%82%8A%E3%81%AE%E9%BC%93%E5%8B%95%E3%80%90420M%E3%80%91-100430.md) - 2026-04-05，ID: 100430
 - [\\[日式SLG/汉化\\] 色情计划 Ero Scheme v0.8.1 \\[PC+安卓/4.5G\\]](https://github.com/waldacops-creator/aifq/blob/main/2026/04/01/%5B%E6%97%A5%E5%BC%8FSLG-%E6%B1%89%E5%8C%96%5D-%E8%89%B2%E6%83%85%E8%AE%A1%E5%88%92-Ero-Scheme-v0.8.1-%5BPC%2B%E5%AE%89%E5%8D%93-4.5G%5D-100412.md) - 2026-04-01，ID: 100412
 - [清水凪 – 黑咲芽亚](https://github.com/waldacops-creator/aifq/blob/main/2026/04/01/%E6%B8%85%E6%B0%B4%E5%87%AA-%E2%80%93-%E9%BB%91%E5%92%B2%E8%8A%BD%E4%BA%9A-100397.md) - 2026-04-01，ID: 100397
